@@ -1,24 +1,25 @@
-# Seli-Kasela-
-SELI KASELA Creative Administrator | Marketing Strategist | Digital Business Developer  Building Digital Creative Systems for Global Business
-# 🎨 SELI KASELA  
-### Creative Administrator | Marketing Strategist | Digital Business Developer  
+# 🛡️ SELI KASELA CREATIVE STUDIO
 
-📍 Badung, Bali, Indonesia  
-📧 adm@selikasela.cyou  
-📞 +62 867 0771 11  
+Creative Administrator | Marketing Strategist | Digital Business Developer  Building Digital Creative Systems for Global Business
 
 ---
 
-## 🌟 Professional Summary
+📍 Badung, Bali, Indonesia  
+📧 adm@selikasela.cyou  
+📞 +62 8567 0771 11
+
+---
+
+## 📜 Professional Summary
 Creative administrator and marketing strategist with experience in digital branding, tourism marketing, and business operations. Skilled in web design, customer communication systems, and online booking management.  
 
 Experienced in supporting international tourism services while developing digital platforms that help businesses grow in the global marketplace.
 
 ---
 
-## 💼 Professional Experience
+##  Professional Experience
 
-### 📌 Admin Marketing — Ossy Surf Trip Bali  
+📌 Admin Marketing — Ossy Surf Trip Bali  
 **2021 – Present | Badung, Bali**  
 - Coordinate marketing campaigns for surf tourism services  
 - Manage booking systems & international customer communication  
@@ -28,12 +29,13 @@ Experienced in supporting international tourism services while developing digita
 
 ---
 
-### 🚀 Founder — Seli Kasela Creative Studio  
-**Digital Creative Agency | Bali**  
+## 🎗️ Founder  
+"" Seli Kasela Creative Studio  
+*Digital Creative Agency | Bali* 
 - Develop branding & visual identity for businesses  
 - Design websites and marketplace platforms  
 - Build online booking systems for tourism services  
-- Create digital marketing strategies for growth  
+- Create digital marketing strategies for growth 
 
 ---
 
@@ -62,7 +64,7 @@ To build a leading digital creative studio in Indonesia that empowers businesses
 
 ---
 
-## 🚀 Mission
+## 📌 Mission
 - Develop professional marketplace & booking platforms  
 - Deliver high-performance digital solutions  
 - Integrate branding, marketing, and technology  
@@ -85,3 +87,10 @@ To build a leading digital creative studio in Indonesia that empowers businesses
 ---
 
 ⭐ *Building digital experiences that connect creativity, business, and technology*
+
+---
+
+## 𝓢𝓮𝓵𝓲 𝓚𝓪𝓼𝓮𝓵𝓪
+*CREATIVE STUDIO* | *OSSY SURF TRIP BALI* | **BALI, INDONESIA**
+
+----
